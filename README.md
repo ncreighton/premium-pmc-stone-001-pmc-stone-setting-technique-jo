@@ -1,0 +1,2 @@
+# premium-pmc-stone-001-pmc-stone-setting-technique-jo
+Tired of losing track of which stone setting technique worked best for your PMC pieces? Your trial-and-error deserves a dedicated space to capture every variable.  This journal solves the chaos of scattered notes by providing a structured system tailored for PMC stone setting. It’s the best solution because it centralizes all critical data—stone ty
